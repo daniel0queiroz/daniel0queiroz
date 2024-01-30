@@ -4,7 +4,6 @@
 - ✔️ I’m currently working as a freelancer.
 - 💻 I’m currently learning code.
 - 🌎 I’m looking to collaborate on business of people and companies.
-- ℹ️ I’m looking for help to get my first programming job.
 - 💬 Ask me about Jesus, business, soccer and personal development.
 - 📫 How to reach me: https://www.linkedin.com/in/dan-queiroz/
 - ⚡ Fun fact: I already lived in Brazil, Ireland and Portugal!
