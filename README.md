@@ -1,4 +1,4 @@
-### Hi there, my name is Daniel, I'm Business Finance Consultant, Soccer lover and I just started my programmer journey. 
+### Hi there, my name is Daniel, I'm Web Developter and Business Finance Consultant. 
 ### I hope to learn and contribute a lot to this and other communities! 😉👋
 
 - ✔️ I’m currently working as a freelancer.
