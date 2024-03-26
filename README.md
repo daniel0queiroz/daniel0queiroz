@@ -1,4 +1,4 @@
-### Hi there, my name is Daniel, I'm Web Developer and Business Finance Consultant. 
+### Hi there, my name is Daniel, I'm Web Developer and Freelancer. 
 ### I hope to learn and contribute a lot to this and other communities! 😉👋
 
 - ✔️ I’m currently working as a freelancer.
