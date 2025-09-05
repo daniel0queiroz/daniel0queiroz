@@ -5,7 +5,7 @@
 - 🌎 I’m looking to collaborate on business of people and companies.
 - 💬 Ask me about Jesus, business, football and personal development.
 - 📫 How to reach me: https://www.linkedin.com/in/dan-queiroz/
-- ⚡ Fun fact: I already lived in Brazil, Ireland and Portugal!
+- ⚡ Fun fact: I have already lived in Brazil, Ireland and Portugal!
 
 Currently, these are my main knowledge:
 
